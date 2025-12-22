@@ -1,1 +1,0 @@
-# 9ambatch_techsol
